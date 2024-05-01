@@ -16,7 +16,7 @@
 
 ### My name is Rli Clark 🦉
 
-- 👻 I have Ekittenophobia
+- 👻 I have Ekittenphobia
 
 - 🎪 Discord Server: https://discord.gg/VRvJT3Bz
 
