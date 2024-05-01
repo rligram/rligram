@@ -1,5 +1,20 @@
 ### Hi there 👋
 
+- 😄 Pronouns: He/Him
+
+- 💭 I’m currently learning Python and GoLang
+
+- 🎁 I'm answer only in discord: @okrli
+
+- ⚡ Fun fact: Telegram always trying to delete my accounts
+
+- 🎈 My projects: Cvilion, Hostbin
+
+- ✨ My friends: Connor, Neeobz, Ganster, Randomized, Foxyan
+
+- 🐈 My favorite pet: Cat
+
+### My name is Rli Clark 🦉
 <!--
 **rligram/rligram** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
