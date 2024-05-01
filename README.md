@@ -19,3 +19,5 @@
 - 👻 I have Ekittenophobia
 
 - 🎪 Discord Server: https://discord.gg/VRvJT3Bz
+
+- 🎁 Telegram Channel: https://t.me/@EOFCPublic
